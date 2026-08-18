@@ -13,6 +13,4 @@
 - I'm bilingual! I speak both Spanish and English. 🌎✨
 
 # Let's Connect!
-- (901) 371-6278
-- dianamontero38@gmail.com
 - <a href="https://www.linkedin.com/in/diana-montero-72426a254/">LinkedIn</a>
